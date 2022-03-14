@@ -1,1 +1,1 @@
-Replace this with a link to your a GitHub or social media profile.
+you can check out ITSNP https://www.facebook.com/itsnporg for more tech and IT related. 
